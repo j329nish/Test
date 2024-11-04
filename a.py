@@ -1,3 +1,4 @@
 aiueo
 kakikukeko
 sasisuseso
+tatituteto
